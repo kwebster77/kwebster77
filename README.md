@@ -1,4 +1,4 @@
-### 👋 Hello, I’m Karley, a Business Analyst in London 
+### 👋 Hello, I’m Karley, a Data Engineered  in London 
 
 I have recently graduated with a Masters in Business Administration and currently working on a Masters in Business Analytics. 
 I have over 5 years experience working in international organizations. I am interested in collaborating on projects to build my portfolio! 
